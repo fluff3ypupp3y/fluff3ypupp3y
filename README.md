@@ -1,10 +1,7 @@
 　　　　　　　　　
 <div align="center">
-
-   <img src="https://i.ibb.co/V0d2mCWP/tumblr-34638e4f91c44a48b946c77ac68ea0e3-4d472809-2048.png">
    
   $${\color{#f96480} 𝓈𝑜𝓊𝓇𝒸𝑒𝓈 }$$ $${\color{#fec7c5} :}$$ [![cardcaptor](https://i.ibb.co/CstFgR7b/tumblr-45a74b684f6efcd2ba267e1886101995-8c87d13a-75.webp)](https://www.tumblr.com/coco-coquette/797229516923846656/hi-i-was-wondering-if-you-could-find-some-of)
- [![keroro](https://i.ibb.co/yFv29jf7/tumblr-531c6d5abc532d660cc739c2dd8f23d3-b5ca2e0d-75.webp)](https://www.tumblr.com/yu2ki/754456220796157953)
  [![syaoran](https://i.ibb.co/dsFW3S6Q/tumblr-065197f89a71932f9fa40bbc40fb29c0-f6ea220b-75.webp)](https://www.tumblr.com/saintpng/804134097597431808)       <img src="https://i.ibb.co/CsBJW7Tx/tumblr-fea127b78658987d88b01a74d797cf61-7797e6b0-1280.png" align="right" width="200" alt=meeeoeww>
 
 $${\color{#fec7c5} this　is　a }$$ $${\color{#f96480} spam　follow　accountblock　!　block　if　unwanted}$$ $${\color{#fec7c5}˚˖𓍢ִ໋❀}$$
