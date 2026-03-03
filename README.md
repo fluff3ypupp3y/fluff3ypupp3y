@@ -6,6 +6,8 @@
 
 $${\color{#fec7c5} this　is　a }$$ $${\color{#f96480} spam　follow　accountblock　!　block　if　unwanted}$$ $${\color{#fec7c5}˚˖𓍢ִ໋❀}$$
 
+![](https://komarev.com/ghpvc/?username=fluff3ypupp3y&color=f96480&style=for-the-badge&base=825&label=kuura♡ྀི )
+
 </div>
   
  <img src="https://i.ibb.co/7Dp5sRZ/tumblr-3b952b6809a5228ccc7e43c135ddcdf6-ec538b60-1280.gif">
