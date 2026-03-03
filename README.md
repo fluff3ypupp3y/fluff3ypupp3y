@@ -4,11 +4,22 @@
    <img src="https://i.ibb.co/V0d2mCWP/tumblr-34638e4f91c44a48b946c77ac68ea0e3-4d472809-2048.png">
    
   $${\color{#f96480} 𝓈𝑜𝓊𝓇𝒸𝑒𝓈 }$$ $${\color{#fec7c5} :}$$ [![cardcaptor](https://i.ibb.co/CstFgR7b/tumblr-45a74b684f6efcd2ba267e1886101995-8c87d13a-75.webp)](https://www.tumblr.com/coco-coquette/797229516923846656/hi-i-was-wondering-if-you-could-find-some-of)
-  [![cardy](https://i.ibb.co/39qFtn8q/tumblr-360efe5e3a532e447e4e1cdc44d4d5f1-62fdcc06-75.webp)](https://www.tumblr.com/ferretmilkshakezzz/774786858187096064/pink-dividers)
  [![keroro](https://i.ibb.co/yFv29jf7/tumblr-531c6d5abc532d660cc739c2dd8f23d3-b5ca2e0d-75.webp)](https://www.tumblr.com/yu2ki/754456220796157953)
- [![syaoran](https://i.ibb.co/dsFW3S6Q/tumblr-065197f89a71932f9fa40bbc40fb29c0-f6ea220b-75.webp)](https://www.tumblr.com/bunnelbaby/772856506418905088/heres-a-list-of-childrens-shows-for-girl)                           <img src="https://i.ibb.co/Wv4xp5XK/tumblr-7efe32680a0165c5d563f57b49648821-99e1d72f-500.webp" width="200" align="right" alt="meeeowww">
+ [![syaoran](https://i.ibb.co/dsFW3S6Q/tumblr-065197f89a71932f9fa40bbc40fb29c0-f6ea220b-75.webp)](https://www.tumblr.com/saintpng/804134097597431808)       <img src="https://i.ibb.co/CsBJW7Tx/tumblr-fea127b78658987d88b01a74d797cf61-7797e6b0-1280.png" align="right" width="200" alt=meeeoeww>
 
-$${\color{#fec7c5} this　is　a }$$ $${\color{#f96480} spam　follow　account}$$ $${\color{#fec7c5}˚˖𓍢ִ໋❀}$$
+$${\color{#fec7c5} this　is　a }$$ $${\color{#f96480} spam　follow　accountblock　!　block　if　unwanted}$$ $${\color{#fec7c5}˚˖𓍢ִ໋❀}$$
+
+</div>
   
  <img src="https://i.ibb.co/7Dp5sRZ/tumblr-3b952b6809a5228ccc7e43c135ddcdf6-ec538b60-1280.gif">
-<img src="https://64.media.tumblr.com/42e09047d19205722adb2cfc1ed795bc/dc6f0badd4745795-8c/s1280x1920/b38c447b9c9acbb23f788b9c745d6aa532cd8789.pnj">
+
+  <details>
+<summary> <td>$${\color{#ffd8d8}\verb|ദ്ദി(˵ •̀ ᴗ - ˵ )|}$$</td> </summary>
+
+<div align="center">
+
+$${\color{fec7c5}𝓂𝑒　𝒶𝓃𝒹　𝓂𝓎}$$ $${\color{#f96480}𝒽𝓊𝓈𝒷𝒶𝓃𝒹}$$
+
+<img src="https://i.pinimg.com/736x/93/ed/d0/93edd0f138a4d010f80701f979078b03.jpg" align="center" width="340">
+
+</details>
