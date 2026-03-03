@@ -1,8 +1,6 @@
 　　　　　　　　　
 <div align="center">
 
-<img src="https://64.media.tumblr.com/66e930476bc8b4943a21a6d2af4f1542/dc6f0badd4745795-ad/s640x960/16b2162c9f25c2cc3a24e34dc3c172ee3e8968b6.pnj" width=900 align=center>
-
    <img src="https://i.ibb.co/V0d2mCWP/tumblr-34638e4f91c44a48b946c77ac68ea0e3-4d472809-2048.png">
    
   $${\color{#f96480} 𝓈𝑜𝓊𝓇𝒸𝑒𝓈 }$$ $${\color{#fec7c5} :}$$ [![cardcaptor](https://i.ibb.co/CstFgR7b/tumblr-45a74b684f6efcd2ba267e1886101995-8c87d13a-75.webp)](https://www.tumblr.com/coco-coquette/797229516923846656/hi-i-was-wondering-if-you-could-find-some-of)
