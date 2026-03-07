@@ -10,7 +10,7 @@ $${\color{#fec7c5} this　is　a }$$ $${\color{#f96480} spam　follow　account�
 
 </div>
   
- <img src="https://i.ibb.co/7Dp5sRZ/tumblr-3b952b6809a5228ccc7e43c135ddcdf6-ec538b60-1280.gif">
+ <img src="https://i.ibb.co/XZZ1t9mv/tumblr-3b952b6809a5228ccc7e43c135ddcdf6-ec538b60-1280.gif">
 
   <details>
 <summary> <td>$${\color{#ffd8d8}\verb|ദ്ദി(˵ •̀ ᴗ - ˵ )|}$$</td> </summary>
